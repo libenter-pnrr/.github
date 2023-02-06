@@ -1,31 +1,15 @@
-# Libera. Associazioni, nomi e numeri contro le mafie 👋
+# L’idea di LIBenter 👋
 
-Libera è una rete di associazioni, cooperative sociali, movimenti e gruppi, scuole, sindacati, diocesi e parrocchie, gruppi scout, coinvolti in un 
-impegno non solo **“contro”** le mafie, la corruzione, i fenomeni di criminalità e chi li alimenta, ma profondamente **“per”**: 
+L’idea di LIBenter nasce già dalla lettura della prima bozza del Piano Nazionale di Ripresa e Resilienza pubblicata nel dicembre 2020, rinforzandosi alla luce del [documento definitivo](https://www.governo.it/sites/governo.it/files/PNRR_0.pdf) trasmesso a Bruxelles il 30 aprile di quest’anno.
 
-- la giustizia sociale
-- la ricerca di verità
-- la tutela dei diritti
-- una politica trasparente
-- una legalità democratica fondata sull’uguaglianza
-- una memoria viva e condivisa
-- una cittadinanza all’altezza dello spirito e delle speranze della Costituzione
+Di fronte alla previsione di spesa di oltre **240 miliardi di euro** del programma dell’Unione europea _Next Generation EU_, è evidente come l’impresa di contribuire alla ripartenza del nostro Paese richieda uno sforzo congiunto di tutte le forze della nazione, istituzionali e civiche, ciascuna secondo il proprio ruolo e le proprie responsabilità.
 
+**Accanto** ai compiti delle **Pubbliche Amministrazioni**, sia italiane che dell’UE, LIBenter vuole contribuire a dotare la nostra comunità nazionale di strumenti conoscitivi e concreti per concorrere a quel ruolo di “controllo diffuso” che la stessa normativa di trasparenza del 2013 le assegna, con ciò dando il proprio apporto alla miglior esecuzione dei progetti contenuti nel PNRR.
 
-Nata nel **1995**, in questi anni ha mantenuto fede a alcuni orientamenti etici e pratici. Il primo è la continuità. 
-Si possono avere belle idee di partenza, ma poi bisogna realizzarle con la tenacia e l’impegno quotidiano. Il secondo è la proposta. 
-Il contrasto alle mafie e alla corruzione non può reggersi solo sull’indignazione: deve seguire la proposta e il progetto. 
-Il terzo è stato il **“noi”**, cioè la condivisione e la corresponsabilità. Le mafie e la corruzione sono un problema non solo criminale ma 
-sociale e culturale, da affrontare unendo le forze.
+«Nei momenti più difficili della nostra storia l’espressione più alta e nobile della politica si è tradotta in scelte coraggiose, in visioni che fino a un attimo prima sembravano impossibili. Perché prima di ogni nostra appartenenza viene il dovere di cittadinanza», sono state le parole dello stesso Presidente del Consiglio Mario Draghi in occasione presentazione del programma di Governo in Senato il 17 febbraio scorso.
 
-## Presenza di Libera sul territorio
+LIBenter vuole adempiere, tramite strumenti concreti, proprio a quello status di cittadinanza che dà diritti, doveri e responsabilità: la responsabilità, adesso, di accompagnare il lavoro cui sono chiamate le pubbliche amministrazioni con gli **strumenti di controllo e di vigilanza sociale diffusa**.
 
-È presente su tutto il territorio italiano in **20** coordinamenti regionali, **83** coordinamenti provinciali e **304** presidi locali. Sono **80** le organizzazioni internazionali aderenti al network di Libera Internazionale, in 35 Paesi d’Europa, Africa e America Latina.
+Vogliamo contribuire a **contrastare sprechi di risorse** che potrebbero rivelarsi esiziali per un Paese che sta facendo gravare sulle proprie future generazioni (che per di più le previsioni dell’ISTAT danno in forte contrazione) un debito pubblico in termini assoluti già da record (quasi 2.587 miliardi al 31.10.2020) e che in termini percentuali, rispetto al PIL, si avvia a raggiungere il record storico (160%) conseguito circa un secolo fa, nel 1920, in un anno prodromico al rovesciamento delle istituzioni democratiche e al disastro bellico.
 
-Oltre **4.000** sono i giovani che ogni estate partecipano ai campi d’impegno e formazione sui beni confiscati, circa un migliaio quelli che animano progetti di tutela ambientale in collaborazione con Carabinieri Forestale. Oltre **5.000** le scuole e le facoltà universitarie impegnate insieme a Libera nella costruzione e realizzazione di percorsi di formazione e di educazione alla responsabilità e legalità democratica, con il coinvolgimento di migliaia di studenti e centinaia di insegnanti e docenti universitari.
-
-Libera ha realizzato un primo censimento delle esperienze positive di uso sociale dei beni confiscati, frutto di una legge per la quale ha promosso nel 1995 una petizione che raccolse un milione di firme: sono oltre **867** sono le associazioni e le cooperative assegnatarie di beni in Italia, che si occupano di inclusione e servizi alle persone, di reinserimento lavorativo, di formazione e aggregazione giovanile, di rigenerazione urbana e culturale, di accompagnamento alle vittime e ai loro familiari.
-
-## Memoria e Impegno: i pilastri di Libera
-
-Per **Libera** è importante mantenere vivo il ricordo e la memoria delle vittime innocenti delle mafie. Uomini, donne e bambini che hanno perso la propria vita per mano della violenza mafiosa, per difendere la nostra libertà, la nostra democrazia. Una memoria condivisa e responsabile grazie alla testimonianza dei loro familiari che si impegnano affinchè gli ideali, i sogni dei loro cari rimangono vivi. Ogni anno, il **21 marzo**, primo giorno di primavera, in occasione della *Giornata della memoria e dell’impegno in ricordo delle vittime innocenti delle mafie**, in tanti luoghi del nostro Paese e all'estero, vengono letti tutti i nomi delle vittime innocenti delle mafie. Un lungo elenco, recitato come un interminabile rosario civile, per farli vivere ancora, per non farli morire mai. A partire dal 21 marzo e durante gli altri 364 giorni dell'anno, perché solo facendo della memoria uno strumento d’impegno e di responsabilità, si pone il seme di una nuova speranza.
+**Non possiamo permetterlo.**
